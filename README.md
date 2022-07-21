@@ -1,3 +1,3 @@
 # myPortfolio
-Explore It:-
+Explore It :-
 https://prakharportfolio.000webhostapp.com/
